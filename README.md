@@ -1,3 +1,3 @@
 # purplekios
  
-Mon thème Dofus violet 
+Thème Purplexygen Dofus mis a jour 
